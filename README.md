@@ -1,16 +1,13 @@
-## Hi there 👋
+Hello! I am Taro/Shirun. I go by any pronouns BUT she/her. I like to play, draw, and hang out with oomfs! ^v^
 
-<!--
-**wallmark5life/wallmark5life** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+English / Filipino only
 
-Here are some ideas to get you started:
+I am a Mannequin Mark coping link. Mark fans interact PLEASE!! He deserves more love!!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Wallter yumeshipper (Selective. Dniuid.)
+
+Wallmark and PityParty lovr
+
+Proshippers & Darkshippers dni
+
+Any ships with Mark and Wallter except Wallmark. (especially Fangsworth x Mark) Please interact with caution. I won't block you for it, but it makes me upset soso much
