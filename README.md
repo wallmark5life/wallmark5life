@@ -5,6 +5,8 @@
 
 C+H , INT is encouraged! I don't mind it^^
 
+I don't roleplay since I suck at it
+
 stereotypical Filipino 
 
 I AM MANNEQUIN MARK (Mark yumeshippers please interact with caution. Thanks) 
