@@ -36,7 +36,7 @@ Yeah that's all i think. Thank you!
 
 Things I have to keep me entertained:
 
-[Chance ,,Maf] Wallter WOULD be ab.sive bfr😭
+[Chance ,,C+H ^^] Wallter WOULD be ab.sive bfr😭
 
 [Im tired iwc] You look like you would like Glevmark dude
 
