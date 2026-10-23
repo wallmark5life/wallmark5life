@@ -40,10 +40,14 @@ Things I have to keep me entertained:
 
 [Im tired iwc] You look like you would like Glevmark dude
 
-[Partynoob🎉 C+H FREELY] Its ok to haye fangsworth
-[Partynoob🎉 C+H FREELY] But you're genuinely telling people to
-[Partynoob🎉 C+H FREELY] off their
-[Partynoob🎉 C+H FREELY] self
+
+[Partynoob🎉 C+H FREELY] Its ok to haye fangsworth↓
+
+[Partynoob🎉 C+H FREELY] But you're genuinely↓ telling people to
+
+[Partynoob🎉 C+H FREELY] off them↓
+
+[Partynoob🎉 C+H FREELY] selves
 (For the record, I did not.)
 
 [Sona , W2i] making Mark black is kinda odd to me shrugs... (?)
