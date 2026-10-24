@@ -13,9 +13,9 @@ I AM MANNEQUIN MARK (Mark yumeshippers please interact with caution. Thanks)
 
 Wallter yumeshipper (Hardsharing. dniuid)
 
-Proshippers & Darkshippers heavy dni
+Proshippers & Darkshippers heavy dni + Wallter / Mark haters. I don't play w them
 
-Any ships with Mark and Wallter except Wallmark. (especially Fangsworth x Mark) Please interact with extra caution. It makes me upset.
+Any ships with Mark and Wallter except Wallmark. (especially Fangsworth x Mark) Please interact with extra caution. It makes me upset. Please respect my boundaries! ❤️
 
 Yeah that's all i think. Thank you!
 
