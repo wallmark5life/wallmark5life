@@ -50,4 +50,4 @@ Things I have to keep me entertained:
 [Partynoob🎉 C+H FREELY] selves
 (For the record, I did not.)
 
-[Sona , W2i] making Mark black is kinda odd to me shrugs... (?)
+[Andrew ,, Kinsona] When you ship insct:   (?)
